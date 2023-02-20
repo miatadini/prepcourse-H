@@ -1,2 +1,1 @@
-# prepcourse-H
-a ver q sale
+mia la crack crear repositorio y clon
